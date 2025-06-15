@@ -1,1 +1,0 @@
-# SMTH-for-front-mentor
